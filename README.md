@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Web development
 - 💞️ I’m looking to collaborate with designer
 - 📫 DM @duh_itz_sai(instagram)
-- 😄 Pronouns: All is well
+- 😄 Pronouns: Guess 
 - ⚡ Fun fact: life is a game, So make yourself a fame
 
 <!---
